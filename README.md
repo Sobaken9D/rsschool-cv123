@@ -1,1 +1,1 @@
-https://Sobaken9D.github.io/rsschool-cv/cv
+https://Sobaken9D.github.io/rsschool-cv/
